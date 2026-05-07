@@ -5,3 +5,4 @@ Good is Great
 zindagi me sab chalta hai
 long way on the right
 well do well achive 
+zindagi to kya hai
