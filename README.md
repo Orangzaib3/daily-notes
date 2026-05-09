@@ -7,3 +7,4 @@ long way on the right
 well do well achive 
 zindagi to kya hai
 sab se achi baat yehi hai
+Allah madad
