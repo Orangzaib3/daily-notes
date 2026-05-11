@@ -8,3 +8,4 @@ well do well achive
 zindagi to kya hai
 sab se achi baat yehi hai
 Allah madad
+sab kher howay 
