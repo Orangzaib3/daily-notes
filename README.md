@@ -10,3 +10,4 @@ sab se achi baat yehi hai
 Allah madad
 sab kher howay 
 Allah pak pesay di lor hai
+rab kreem meri madad kro
