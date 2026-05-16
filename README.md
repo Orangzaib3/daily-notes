@@ -13,3 +13,4 @@ Allah pak pesay di lor hai
 rab kreem meri madad kro
 kab mere rab 
 mera maalik Allah hai
+kab qismat kholni hai
