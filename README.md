@@ -15,3 +15,4 @@ kab mere rab
 mera maalik Allah hai
 kab qismat kholni hai
 Rab sai kam bara kharab ho rhy hai 
+ab dekhty hai kya scene hai
