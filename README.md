@@ -20,3 +20,4 @@ wal te aagaya c
 aj mosaam bara aseen hai
 Good luck fam 
 some how 
+sab ko pata lag jaye ga
