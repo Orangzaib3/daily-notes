@@ -22,3 +22,4 @@ Good luck fam
 some how 
 sab ko pata lag jaye ga
 great man great fam
+sab ka yhi hal hai
