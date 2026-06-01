@@ -24,3 +24,4 @@ sab ko pata lag jaye ga
 great man great fam
 sab ka yhi hal hai
 munday lab lo
+Allah pak kab ye din khatam hon ge
