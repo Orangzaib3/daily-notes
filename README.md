@@ -42,3 +42,4 @@ la ila ha illa
 Allah pak raham
 kadi din change hosan
 yar g ki hoya
+so gai market bhi
