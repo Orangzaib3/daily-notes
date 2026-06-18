@@ -41,3 +41,4 @@ sab se bari baat ye hai
 la ila ha illa
 Allah pak raham
 kadi din change hosan
+yar g ki hoya
