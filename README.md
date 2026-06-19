@@ -43,3 +43,4 @@ Allah pak raham
 kadi din change hosan
 yar g ki hoya
 so gai market bhi
+bs itne hor ho jaye
