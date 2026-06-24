@@ -47,3 +47,4 @@ bs itne hor ho jaye
 ye baat to sahi hi thi
 Lag gai jan meri to
 sab se yahi bether hai
+Log sahi kehte hai
